@@ -1,3 +1,4 @@
 # Philadelphia Eagles
 
-Jalen Hurts to AJ Brown for a touchdown
+Jalen Hurts to Devonta Smith for a touchdown
+Jordan Mailata
